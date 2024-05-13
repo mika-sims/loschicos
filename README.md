@@ -1,1 +1,1 @@
-# loschicos
+# LOS CHICOS
